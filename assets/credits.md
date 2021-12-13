@@ -38,3 +38,28 @@ by cribbler
 Creative Commons 0
 
 ---
+"Cabin in the woods"
+by peter.lubeck
+Creative Commons Attribution(2.0)
+
+---
+"Forest"
+by boklm
+Creative Commons 0
+
+---
+"Colorful half-timbered facades in medieval town Colmar, Alsace, France"
+by derrickbrutel
+Creative Commons Attribution (2.0)
+
+---
+"gwynedd"
+by George Hodan
+Creative Commons 0
+
+---
+"Shop intertior"
+by Sam Howzit
+Creative Commons Attribution (2.0)
+
+---
